@@ -2,8 +2,8 @@
 
 Organizing and publishing list of Nepali names with meaning in one collection
 
-| [A - C](#a)| 
-|:-:  |:-:  |:-:  |:-:  |:-:  |:-:  |:-:  |:-:  |:-:  |
+| [A](#a)| 
+|:-:  |
 
 ## Contributing
 
