@@ -7,7 +7,7 @@ Organizing and publishing list of Nepali names with meaning in one collection
 
 ## Contributing
 
-* Please open a [PR](https://guides.github.com/activities/forking/) forNepali Names with Meanings to be added
+* Please open a [PR](https://guides.github.com/activities/forking/) for Nepali Names with Meanings to be added
 * Use the format below
 
 ## Format
