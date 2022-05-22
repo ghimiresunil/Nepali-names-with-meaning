@@ -44,7 +44,7 @@ Aashwin (आश्विन) | Derived form Sanskrit it is the seventh month of 
 Aayan (आयन) | Start, New beginning; Gift of God
 Aayush (आयुष) | Long Life or Blessing
 [Update] Name starts from A to Name Aashwin
- (अबीर) | Colour, Colourful
+Abeer (अबीर)| Colour, Colourful
 Abheek or Abhik | Fearless Warload
 Abhinanda | To rejoice; To celebrate; To praise; To bless
 Abhinav (अभिनव) | Quite new
