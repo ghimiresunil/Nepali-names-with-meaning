@@ -43,7 +43,6 @@ Aashish (आशिष) | Blessings
 Aashwin (आश्विन) | Derived form Sanskrit it is the seventh month of the Lunar Hindu Calendar (Bikram Samvat - B. C calendar). It also means: "spear, lance" and "friend, protector, lord" `Also: Ashwin, Aswin`
 Aayan (आयन) | Start, New beginning; Gift of God
 Aayush (आयुष) | Long Life or Blessing
-[Update] Name starts from A to Name Aashwin
 Abeer (अबीर)| Colour, Colourful
 Abheek or Abhik | Fearless Warload
 Abhinanda | To rejoice; To celebrate; To praise; To bless
