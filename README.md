@@ -49,3 +49,9 @@ Abhinanda | To rejoice; To celebrate; To praise; To bless
 Abhinav (अभिनव) | Quite new
 Abhinyush (अभिन्युश) | Please advise us the meaning of this name
 Abhirup (अभिरूप) | Pleasing
+Abhishek (अभिषेक) | Shower of Milk or Water over an idol
+Abichal (अविचल) | Please advise us the meaning of this name
+Abinab or Abhinav (अभिनव) | In Sanskrit Abhinab means "very young", "quite new", "unique", "clever", and "bright"
+Abiral (अविरल ) | Never Ever Ending (अन्तनै नभएको)
+Achut | Imperishable; A name of Vishnu
+Achyut (अच्युत) | Imperishable; A name of Vishnu
