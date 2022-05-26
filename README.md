@@ -55,3 +55,14 @@ Abinab or Abhinav (अभिनव) | In Sanskrit Abhinab means "very young", "q
 Abiral (अविरल ) | Never Ever Ending (अन्तनै नभएको)
 Achut | Imperishable; A name of Vishnu
 Achyut (अच्युत) | Imperishable; A name of Vishnu
+Adarsh | 	Ideal (सुर्य)
+Adesh (आदेश) | Command
+Adit (अदित) | From the beginning; Peak
+Aditya | Sun
+Adnan (आद्नन) | Stay, Abide; Pioneer
+Advik (अदविक) | Unique
+Agam (अगम) | Unique
+Ahijit | Conquerer of the serpent
+Ahilan (अहिलन)  | Knowledgeable; Commanding
+Ainesh | The sun's glory
+Ajay (अजय) | Unconquerable, invincible (अजेय)
