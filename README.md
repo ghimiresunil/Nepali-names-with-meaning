@@ -66,3 +66,5 @@ Ahijit | Conquerer of the serpent
 Ahilan (अहिलन)  | Knowledgeable; Commanding
 Ainesh | The sun's glory
 Ajay (अजय) | Unconquerable, invincible (अजेय)
+Ajit, Ajit (अजित, अजीत) | Unconquerable (Ajeet)
+Ajoy (अजोय) | Unconquerable
