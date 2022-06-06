@@ -68,3 +68,4 @@ Ainesh | The sun's glory
 Ajay (अजय) | Unconquerable, invincible (अजेय)
 Ajit, Ajit (अजित, अजीत) | Unconquerable (Ajeet)
 Ajoy (अजोय) | Unconquerable
+Akash, Aakash | Sky (भनेको आकाश; जब तपाई खुला मैदानबाट माथि हेर्दा देखिने निलो कुरा)
