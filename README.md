@@ -69,3 +69,8 @@ Ajay (अजय) | Unconquerable, invincible (अजेय)
 Ajit, Ajit (अजित, अजीत) | Unconquerable (Ajeet)
 Ajoy (अजोय) | Unconquerable
 Akash, Aakash | Sky (भनेको आकाश; जब तपाई खुला मैदानबाट माथि हेर्दा देखिने निलो कुरा)
+Akhil | Complete
+Akhilesh | Indestructible; Immortal
+Akram (अक्रम) | Generosity; Most Generous
+Akrit (आकृत) | Helping Others; One who is helpful
+Albish (अल्बिश) | Please advise us the meaning of this name.
