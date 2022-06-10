@@ -74,3 +74,12 @@ Akhilesh | Indestructible; Immortal
 Akram (अक्रम) | Generosity; Most Generous
 Akrit (आकृत) | Helping Others; One who is helpful
 Albish (अल्बिश) | Please advise us the meaning of this name.
+Albish | Bright, clean, pure
+Aman (अमन) | Peace, Calm, Shanti, Tranquillity, Fulfilled  (शान्ति)
+Amar (अमर) | Forever, Immortal
+Amesh | Hijada; Man without balls (हिजडा)
+Amish (अमिश, अमिष ) | Honest
+Amit (अमित) | Endless, Boundless
+Amol (अमोल) | Priceless, Valuable
+Amrit (अमृत) | Nectar; (in Hindu,Greek and Roman mythology) the drink of the gods that will make one immortal
+Amulya (अमुल्य) | 	Priceless, Precious, Valuable (कुनै मूल्य नै नभएको - अनमोल )
