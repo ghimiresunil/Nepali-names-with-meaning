@@ -84,3 +84,6 @@ Amol (अमोल) | Priceless, Valuable
 Amrit (अमृत) | Nectar; (in Hindu,Greek and Roman mythology) the drink of the gods that will make one immortal
 Amulya (अमुल्य) | 	Priceless, Precious, Valuable (कुनै मूल्य नै नभएको - अनमोल )
 Anamol (अनमोल) | Priceless (कुनै मूल्य नै नभएको - अनमोल )
+Aniket | Please advise us the meaning of this name
+Anil (अनिल) | God of Wind
+Anish (अनिश) | Supreme
